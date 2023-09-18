@@ -1,0 +1,1 @@
+# Omdena-Transitry-Developing_Carbon_Project_Management_Platform_Leveraging_Generative-AI_and_ChatGPT
